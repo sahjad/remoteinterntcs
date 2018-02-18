@@ -1,0 +1,2 @@
+# remoteinterntcs
+AI REMOTE INTERNSHIP
